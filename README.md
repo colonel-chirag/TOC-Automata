@@ -1,6 +1,12 @@
 
 # TOC-Automata
 
+Lec -:
+
+Mayank Aggarwal -: https://www.youtube.com/watch?v=Id8pG_OiQUs&list=PLkkt2qQlhbKaz0YYCJA89RoMQX8P7O5vc
+
+Bhanu Priya -: https://www.youtube.com/playlist?list=PLrjkTql3jnm_TWSXXvWX1_jX-L6f1QJSx
+
 Syll-:
 
 ![image](https://user-images.githubusercontent.com/59536110/181947406-87de7f5b-e7fd-45be-8303-5209f210f349.png)
