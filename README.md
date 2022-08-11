@@ -37,3 +37,7 @@ Sessional Question Papers -
 
 ![image](https://user-images.githubusercontent.com/59536110/184193940-05b0d43a-4d2e-4370-8c54-7e0a55a2c613.png)
 ![image](https://user-images.githubusercontent.com/59536110/184193996-4b703740-7d20-4c25-b496-0743212bdfde.png)
+
+![image](https://user-images.githubusercontent.com/59536110/184208133-f9d34be5-3fef-481c-ba30-beb6cd8a824b.png)
+![image](https://user-images.githubusercontent.com/59536110/184208188-37ae72e3-4839-436e-80d7-45109ef36e77.png)
+
