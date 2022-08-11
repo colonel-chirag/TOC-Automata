@@ -19,4 +19,5 @@ Prvious paper-:
 
 Sessional Question Papers -
 
-![IMG_20220731_005402](https://user-images.githubusercontent.com/93399136/181958060-74ba8795-e5a3-4b85-914e-24aa6960d523.jpg)
+![IMG_20220811_094016](https://user-images.githubusercontent.com/93399136/184063604-59003c3f-69a0-4e0a-9132-5f9dbe0a40e8.jpg)
+
