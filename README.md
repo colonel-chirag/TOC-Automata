@@ -11,6 +11,12 @@ Syll-:
 
 ![image](https://user-images.githubusercontent.com/59536110/181947406-87de7f5b-e7fd-45be-8303-5209f210f349.png)
 
+2022 Semester paper:-
+
+![IMG20220818223945](https://user-images.githubusercontent.com/93399136/185454898-b7979760-121b-4836-b8f5-d900b9bc8c35.jpg)
+
+
+
 Prvious paper-:
 
 ![image](https://user-images.githubusercontent.com/59536110/181955125-48885ac6-ca78-489e-94b8-50a7fadf6162.png)
