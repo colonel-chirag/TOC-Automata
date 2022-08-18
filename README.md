@@ -15,6 +15,7 @@ Syll-:
 
 ![IMG20220818223945](https://user-images.githubusercontent.com/93399136/185454898-b7979760-121b-4836-b8f5-d900b9bc8c35.jpg)
 ![IMG20220818224001](https://user-images.githubusercontent.com/93399136/185455326-117ef5b8-d0e3-4cd4-8fb9-06e8a3aeffcc.jpg)
+![IMG20220818224010](https://user-images.githubusercontent.com/93399136/185455509-4fb79ae4-c6d8-4bfa-8540-43a3aa1f57d5.jpg)
 
 
 
